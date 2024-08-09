@@ -9,4 +9,4 @@ Contact me via discord.
 
 Discord: timmys.
 
-![](https://tenor.com/pt-BR/view/homelander-upset-sad-cry-boys-gif-6858682649598278649)
+![homelander-upset](https://github.com/user-attachments/assets/610476cc-5399-410d-85db-2a625e36abda)
